@@ -1,2 +1,0 @@
-# Jurnal
-Jurnal perbagian
